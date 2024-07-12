@@ -1,4 +1,3 @@
-
                                                                                           **小石潭记**
 
 
@@ -13,4 +12,4 @@
 
 同游者：吴武陵，龚古，余弟宗玄。隶而从者，崔氏二小生：曰恕己，曰奉壹。
 
-![屏幕截图_27-6-2024_19367_webvpn afc edu cn](https://github.com/user-attachments/assets/87f5429f-f5ff-40b5-b284-5305eff1d1cf)
+![阿狸 粉色头发 球 4K壁纸_彼岸图网](https://github.com/user-attachments/assets/addf0ff4-4953-429a-bdf1-1483f990be3a)

@@ -1,5 +1,4 @@
-- [ ] 
-![屏幕截图_27-6-2024_194940_webvpn afc edu cn](https://github.com/user-attachments/assets/b6be4fe4-a6bc-4046-a8be-59397f353ab7)
+[https://www.bilibili.com/video/BV1J6421f7QV/?spm_id_from=333.1007.0.0](url)
                                                                                           **小石潭记**
 
 

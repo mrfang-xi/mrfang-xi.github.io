@@ -13,4 +13,4 @@
 
 同游者：吴武陵，龚古，余弟宗玄。隶而从者，崔氏二小生：曰恕己，曰奉壹。
 
-[https://github.com/mrfang-xi/picture/blob/71747ccb90d30afa1d51748d7bb63222abc71d77/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE_27-6-2024_19367_webvpn.afc.edu.cn.jpeg](url)
+[https://github.com/mrfang-xi/picture/blob/71747ccb90d30afa1d51748d7bb63222abc71d77/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE_27-6-2024_19367_webvpn.afc.edu.cn.jpeg]
